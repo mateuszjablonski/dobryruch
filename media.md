@@ -1,5 +1,10 @@
 # Media o nas
 
+## 26 kwietnia 2023
+
+Radio Fama wywiad z Dobry Ruch.
+https://podcasters.spotify.com/pod/show/dobry-ruch/episodes/Radio-Fama-wywiad-z-Dobry-Ruch-e231s16
+
 ## 25 kwietnia 2023
 
 Paweł Szramka w nowej partii. Powstał “Dobry Ruch”
