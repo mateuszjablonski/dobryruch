@@ -13,6 +13,9 @@ https://tylkotorun.pl/polityka/pawel-szramka-w-nowej-partii-powstal-dobry-ruch/
 Paweł Szramka: przestałem szukać współpracy w parlamencie [Rozmowa dnia] (radiopik.pl)
 https://www.radiopik.pl/3,109170,pawel-szramka-przestalem-szukac-wspolpracy-w-par
 
+Poseł Paweł Szramka: - Nie chcemy podkradać posłów (nowosci.com.pl)
+https://nowosci.com.pl/posel-pawel-szramka-nie-chcemy-podkradac-poslow/ar/c1-17488681
+
 ## 24 kwietnia 2023
 
 Nowa partia polityczna w Sejmie. Na jej czele poseł z naszego regionu (ddtorun.pl)
