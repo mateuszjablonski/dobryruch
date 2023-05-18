@@ -1,4 +1,14 @@
-# Media o nas
+# Dobry Ruch w mediach
+
+## 18 maja 2023
+
+Nowa partia namiesza? Poseł Szramka kreśli plany
+https://wydarzenia.interia.pl/raport-wybory-parlamentarne-2023/news-nowa-partia-namiesza-posel-szramka-kresli-plany,nId,6783544
+
+## 15 maja 2023
+
+Prezes UPP Łukasz Malczyk: Rząd nie radzi sobie z gospodarką. Potrzebni są prawdziwi przedsiębiorcy w Sejmie!
+https://www.polityka.pl/tygodnikpolityka/ludzieistyle/2212118,1,prezes-upp-lukasz-malczyk-rzad-nie-radzi-sobie-z-gospodarka-potrzebni-sa-prawdziwi-przedsiebiorcy-w-sejmie.read
 
 ## 2 maja 2023
 
