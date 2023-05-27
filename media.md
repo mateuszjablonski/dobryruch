@@ -1,5 +1,20 @@
 # Dobry Ruch w mediach
 
+## 25 maja 2023
+
+Dobry Ruch: Rządzący wpędzili w kłopoty turystykę, nie słuchają przedsiębiorców
+https://turystyka.rp.pl/biura-podrozy/art38523741-dobry-ruch-rzadzacy-wpedzili-w-klopoty-turystyke-nie-sluchaja-przedsiebiorcow
+
+## 22 maja 2023
+
+Poseł Szramka: Za dużo znaków zapytania w sprawie szczątków rakiety w Zamościu [Rozmowa dnia]
+https://www.radiopik.pl/2,109864,posel-szramka-za-duzo-znakow-zapytania-w-sprawie
+
+## 21 maja 2023
+
+800+ i kilogram podwawelskiej [FELIETON]
+https://tylkotorun.pl/opinie/800-i-kilogram-podwawelskiej-felieton/
+
 ## 18 maja 2023
 
 Nowa partia namiesza? Poseł Szramka kreśli plany
@@ -9,6 +24,11 @@ https://wydarzenia.interia.pl/raport-wybory-parlamentarne-2023/news-nowa-partia-
 
 Prezes UPP Łukasz Malczyk: Rząd nie radzi sobie z gospodarką. Potrzebni są prawdziwi przedsiębiorcy w Sejmie!
 https://www.polityka.pl/tygodnikpolityka/ludzieistyle/2212118,1,prezes-upp-lukasz-malczyk-rzad-nie-radzi-sobie-z-gospodarka-potrzebni-sa-prawdziwi-przedsiebiorcy-w-sejmie.read
+
+## 12 maja 2023
+
+Choroba zawodowa. "Postępowania trwają latami, wnioskodawcy umierają". Co na to minister?
+https://www.rynekzdrowia.pl/Prawo/Choroba-zawodowa-Postepowania-trwaja-latami-wnioskodawcy-umieraja-Co-na-to-minister,245494,2.html
 
 ## 2 maja 2023
 
